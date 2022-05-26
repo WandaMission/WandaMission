@@ -1,2 +1,0 @@
-- 👋 Hi, I’m @WandaMission
-- I have two cats
